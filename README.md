@@ -4,7 +4,7 @@ Après 8 ans en tant qu'ébéniste à travailler sur un chantier naval à la fab
 
 Mon expérience en tant qu’ébéniste m’a apporté un sens important de l’esthétique que j’ai su appliquer dans mon nouveau métier afin de procurer à l’utilisateur un résultat efficace, agréable, fonctionnel et intuitif.
 
-Je suis actuellement en recherche d'emploi sur **Toulouse et alentours**. N'hésitez pas à me contacter via [mon profil LinkedIn](https://www.linkedin.com/in/antoine-quelin/) ou par [mail](mailto:quelin.antoine@gmail.com). Je serai ravi de discuter avec vous d'offres, d'opportunités, de mes projets ou tout simplement de prendre un petit café virtuel. :smiley: :coffee: 
+N'hésitez pas à me contacter via [mon profil LinkedIn](https://www.linkedin.com/in/antoine-quelin/) ou par [mail](mailto:quelin.antoine@gmail.com). Je serai ravi de discuter avec vous d'offres, d'opportunités, de mes projets ou tout simplement de prendre un petit café virtuel. :smiley: :coffee: 
 
 ## Mes Projets
 
